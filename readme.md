@@ -4,4 +4,4 @@ I study in Netology
 
 14.08.24
 
-емоджи
+емоджи:)
